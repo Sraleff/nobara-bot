@@ -1,7 +1,7 @@
 # nobara-bot
 🌟 Nobara Don - Bot Jujutsu Kaisen! Descubra o mundo de Jujutsu Kaisen com este bot de WhatsApp. Obtenha informações sobre personagens, técnicas de maldição e divirta-se com comandos engraçados. Adicione ao seu grupo para uma experiência única! 🍃💥
 
-<img src="  ****   ">      
+<img src="https://telegra.ph/file/fc79c40291996b62dd031.jpg">      
 
 <h1 align="center">
 <p>
